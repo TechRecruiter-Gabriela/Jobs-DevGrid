@@ -29,7 +29,7 @@ Estamos sempre à procura de profissionais talentosos e experientes para podermo
 > ### Como entrar em contato com o time de RH da DG?
 
 - Nos mande um e-mail: _gabriela@devgrid.co.uk_
-- Uma mensagem: +55 (51) 9 8941-1580
+- Uma mensagem: _+55 (51) 9 8941-1580_
 - Ou chama a gente no LinkedIn: [_Gabriela_](https://www.linkedin.com/in/gabriela-schulze-aaa6a5139/)
 
 ### _Viu como é fácil fazer parte de um time incrível e internacional? Agora não perde tempo e vem ser #DGTeam!!_ 🎯🤘🧡
