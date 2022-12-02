@@ -1,5 +1,5 @@
 
-![DevGrid](https://media-exp1.licdn.com/dms/image/C4E16AQGQvS2wj0-z8w/profile-displaybackgroundimage-shrink_350_1400/0/1627411351001?e=1633564800&v=beta&t=Pvma4SpsmTjggyx3J-KaIsfSWCjG7z-n7yhuHtD5eRo)
+![DevGrid](https://media-exp1.licdn.com/dms/image/C4E16AQGQvS2wj0-z8w/profile-displaybackgroundimage-shrink_350_1400/0/1627411351001?e=1675296000&v=beta&t=vL6lgaOV1ylutnKjHGPo9yABSuNu5IA92AIQMomw-2w)
 
 > ### Quem somos?
 
